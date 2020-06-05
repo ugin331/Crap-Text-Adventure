@@ -1,5 +1,1 @@
-lol
-AAAY, I'm a legend!
-#TheLegend27isreal
-Lmao
-*insert airhorn noise*
+I never finished this because it's bad.
